@@ -1,0 +1,2 @@
+# akramtechyt.io
+Earnings
